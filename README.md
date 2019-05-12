@@ -8,3 +8,8 @@
 旗下平台出事后，万和集团立即甩锅。这样的行为引起了超万人规模的出借人激怒。
 
 <img width="1270" alt="Screen Shot 2019-05-11 at 8 11 01 PM" src="https://user-images.githubusercontent.com/50045421/57576250-f0dc6400-7428-11e9-9d87-90b943673066.png">
+
+
+### 加入万人总群
+
+![photo_2019-05-11_17-55-01 (2)](https://user-images.githubusercontent.com/50045421/57576281-ecfd1180-7429-11e9-9b45-5c9d155960c4.jpg)
