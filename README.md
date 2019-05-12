@@ -12,4 +12,4 @@
 
 ### 加入万人总群
 
-![photo_2019-05-11_17-55-01 (2)](https://user-images.githubusercontent.com/50045421/57576281-ecfd1180-7429-11e9-9b45-5c9d155960c4.jpg)
+<img width="600" src="https://user-images.githubusercontent.com/50045421/57576281-ecfd1180-7429-11e9-9b45-5c9d155960c4.jpg">
